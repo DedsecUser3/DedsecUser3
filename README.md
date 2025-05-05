@@ -40,5 +40,5 @@
 
 ## 📫 Let’s Connect
 
-🔗 Twitter: [@DedsecUser3](https://x.com/DedsecUser3)  
 🌐 GitHub: [github.com/DedsecUser3](https://github.com/DedsecUser3)
+💬 Discord: [discord.com/mzluxury](https://discord.com/mzluxury)
